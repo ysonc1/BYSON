@@ -1,0 +1,1 @@
+I am 30% deaf in my left ear!
