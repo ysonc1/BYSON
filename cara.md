@@ -1,0 +1,1 @@
+My roommate is 30% deaf in her left ear, yet still wakes up from my snoring.
